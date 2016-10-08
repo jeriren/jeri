@@ -1,2 +1,2 @@
 # jeri
-I am love everything logical.
+I love everything logical.
